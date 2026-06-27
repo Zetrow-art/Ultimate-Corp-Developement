@@ -1,2 +1,2 @@
-# Roue-de-Word-Of-Warcraft
-Une roue pour gagner des récompenses sur Wow
+La Ultimate Corp 
+La Ultimate Corp est un groupe de personne oeuvrant pour le développement de nouveux programme et jeux vidéo
